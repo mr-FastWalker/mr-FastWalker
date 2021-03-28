@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Yury Skorokhod
+- 📫 How to reach me: mr.skorokhod@mail.ru
